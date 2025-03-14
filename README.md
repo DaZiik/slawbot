@@ -1,1 +1,1 @@
-https://i.postimg.cc/WzDjXsCJ/bot-cin-nobg.png
+[https://i.postimg.cc/WzDjXsCJ/bot-cin-nobg.png]
